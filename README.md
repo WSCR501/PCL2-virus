@@ -31,3 +31,5 @@ A destructive virus
 不要为了听草东的歌运行！！！
 我也不知道写点啥好
 如果你来到了这个页面，那么切记，你应该是中毒了，因为我还没有大力推广
+![微信图片_20241002133501](https://github.com/user-attachments/assets/6ae4477a-37e0-4fe2-ae9f-bc9103ca3cc1)
+
